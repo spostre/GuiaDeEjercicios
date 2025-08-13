@@ -52,3 +52,16 @@ Instrucciones:
 -30 segundos de descanso
 
 -Repetir por 4-5 rondas
+
+Consejos:
+-Calienta siempre antes de comenzar y estira después.
+
+-Escucha tu cuerpo: Si sientes mareos, dolor en el pecho o dificultad para respirar, detente.
+
+-Hidratación: Bebe agua antes, durante y después del ejercicio.
+
+-No te excedas al principio: Aumenta la duración e intensidad progresivamente.
+
+-Calzado adecuado: Usa zapatillas deportivas que absorban el impacto.
+
+-Consulta a un médico si tienes condiciones cardíacas o estás iniciando desde cero.
