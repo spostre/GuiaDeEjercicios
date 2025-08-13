@@ -55,3 +55,17 @@ Instrucciones:
 
 -Duración: 30 a 60 minutos por sesión (puede adaptarse a 10-15 min en prácticas breves).
 
+Consejos:
+-Respira de forma consciente durante toda la práctica.
+
+-No fuerces tu cuerpo: Cada postura tiene variaciones para diferentes niveles.
+
+-Usa accesorios si es necesario: Bloques, correas o cojines para facilitar algunas posturas.
+
+-Evita compararte con otros: Yoga es una práctica personal y progresiva.
+
+-Consulta con un instructor si tienes lesiones, estás embarazada o tienes condiciones médicas.
+
+-Sé constante: La práctica regular es más efectiva que sesiones esporádicas.
+
+-Finaliza siempre con relajación (Savasana) para integrar los beneficios de la práctica.
