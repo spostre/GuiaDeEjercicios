@@ -51,3 +51,18 @@ Instrucciones:
 
 -Estiramientos suaves, respiración consciente y relajación.
 
+Consejos:
+-Aprende con un instructor certificado, especialmente al principio, para garantizar una técnica correcta.
+
+-Concéntrate en la calidad, no en la cantidad de repeticiones.
+
+-Activa el core en todo momento para proteger la columna.
+
+-Evita forzar los movimientos; la fluidez y el control son claves.
+
+-Adapta los ejercicios según tu nivel o condición física.
+
+-Usa una colchoneta cómoda y antideslizante.
+
+-Si tienes lesiones o estás embarazada, realiza una rutina adaptada por un profesional.
+
