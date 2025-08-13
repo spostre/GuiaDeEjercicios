@@ -40,3 +40,19 @@ Instrucciones:
 4.Descansa 30-60 segundos entre rondas.
 
 5.Enfriamiento: Estiramientos estáticos y respiración profunda para recuperación.
+
+Consejos:
+-Mantén una buena técnica para evitar lesiones.
+
+-No sacrifiques la postura por la cantidad de repeticiones.
+
+-Ajusta la intensidad según tu nivel.
+
+-Utiliza calzado cómodo y superficie adecuada.
+
+-Hidratación constante.
+
+-Si tienes lesiones o condiciones médicas, consulta a un profesional antes de comenzar.
+
+-Incorpora progresión gradual en el peso o volumen de entrenamiento.
+
