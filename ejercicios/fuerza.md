@@ -51,3 +51,18 @@ Instrucciones:
 
 -Estiramientos suaves de los músculos trabajados y respiración controlada.
 
+Consejos:
+-Aprende la técnica adecuada antes de cargar peso; la forma es más importante que la carga.
+
+-Aumenta el peso de forma progresiva.
+
+-No olvides trabajar todos los grupos musculares para mantener el equilibrio corporal.
+
+-Usa un observador (spotter) si levantas cargas pesadas, especialmente en ejercicios como press de banca o sentadillas con barra.
+
+-Descansa al menos 48 horas antes de volver a entrenar el mismo grupo muscular.
+
+-Mantente bien hidratado y sigue una nutrición adecuada para apoyar el desarrollo muscular.
+
+-Consulta con un entrenador o fisioterapeuta si tienes antecedentes de lesiones.
+
