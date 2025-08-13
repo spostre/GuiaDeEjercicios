@@ -17,3 +17,36 @@ Beneficios:
 -Reduce el estrés: El agua tiene un efecto calmante y mejora el bienestar mental.
 
 -Aumenta la flexibilidad: Gracias a los movimientos amplios y fluidos.
+
+Instrucciones:
+1.Calentamiento (5-10 minutos):
+
+-Movilidad fuera del agua (brazos, cuello, hombros, caderas).
+
+-Nado suave en estilo libre o espalda por 2-4 largos.
+
+2.Técnica básica según estilo:
+
+-Crol (libre): Patada alterna, brazadas alternadas y respiración lateral cada 2-3 brazadas.
+
+-Pecho: Movimiento circular de brazos y patada de rana.
+
+-Espalda: Similar al crol, pero de espaldas, con cara fuera del agua.
+
+-Mariposa: Movimiento simultáneo de brazos y patada ondulante del cuerpo.
+
+3.Entrenamiento estructurado:
+
+-4-8 largos de técnica (dependiendo del nivel).
+
+-4-6 sprints de 25 o 50 metros.
+
+-Ejercicios de técnica con tabla o pull buoy.
+
+-Vuelta a la calma: 2-4 largos a ritmo suave.
+
+4.Frecuencia recomendada:
+
+-2 a 4 veces por semana.
+
+-De 30 a 60 minutos por sesión.
