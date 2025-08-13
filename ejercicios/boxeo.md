@@ -36,3 +36,16 @@ Circuitos de fuerza (flexiones, abdominales, burpees), trabajo de resistencia.
 
 -Enfriamiento (5-10 min):
 Estiramientos estáticos y respiración controlada para recuperar.
+
+Consejos:
+-Aprende con un profesional: Para evitar malas posturas o técnicas que puedan causar lesiones.
+
+-Usa protección adecuada: Vendas, guantes y protector bucal, incluso si solo entrenas.
+
+-Respeta tu nivel: No intentes seguir el ritmo de boxeadores avanzados si estás empezando.
+
+-Mantente hidratado y escucha a tu cuerpo: el sobreentrenamiento puede provocar fatiga o lesiones.
+
+-No descuides la técnica: Golpear fuerte no sirve de nada sin una buena base técnica.
+
+-Haz calentamiento y estiramiento siempre: Previene lesiones y mejora tu rendimiento.
