@@ -18,3 +18,33 @@ Beneficios:
 
 -Transporte sostenible: En entornos urbanos, también sirve como medio ecológico y económico de transporte.
 
+Instrucciones:
+1.Elige tu modalidad:
+
+-Ciclismo al aire libre: En carretera, montaña, ciudad o rutas recreativas.
+
+-Ciclismo indoor: Bicicleta estática, spinning o rodillo en casa.
+
+2.Duración y frecuencia recomendada:
+
+-3 a 5 veces por semana.
+
+-De 30 a 90 minutos, según el nivel y los objetivos.
+
+3.Estructura básica de una sesión:
+
+-Calentamiento (5-10 min): Pedaleo suave en terreno llano o baja resistencia.
+
+-Fase principal: Ritmo moderado o variable (puedes incluir intervalos).
+
+-Enfriamiento (5-10 min): Reducir el ritmo progresivamente y estiramientos al bajar de la bici.
+
+4.Ejemplo de entrenamiento por intervalos (indoor):
+
+-5 min pedaleo suave
+
+-1 min pedaleo rápido + 1 min recuperación suave (x6)
+
+-5 min pedaleo suave de vuelta a la calma
+
+
