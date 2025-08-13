@@ -47,4 +47,19 @@ Instrucciones:
 
 -5 min pedaleo suave de vuelta a la calma
 
+Consejos:
+-Ajusta la bicicleta correctamente: Altura del asiento, manillar y posición del cuerpo.
+
+-Utiliza casco y equipo de seguridad si practicas al aire libre.
+
+-Mantente visible: Usa luces y ropa reflectante en condiciones de poca luz.
+
+-Hidrátate constantemente, especialmente en recorridos largos.
+
+-Haz mantenimiento a tu bici: Revisa frenos, llantas y cadena regularmente.
+
+-No ignores el dolor: Si sientes molestias en rodillas, espalda o muñecas, revisa tu postura.
+
+-Estira después de cada sesión, sobre todo piernas y espalda baja.
+
 
