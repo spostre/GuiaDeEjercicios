@@ -50,3 +50,18 @@ Instrucciones:
 -2 a 4 veces por semana.
 
 -De 30 a 60 minutos por sesión.
+
+Consejos:
+-Aprende la técnica correcta, preferiblemente con un instructor, para evitar malos hábitos y lesiones.
+
+-Calienta antes de entrar al agua y estira al salir.
+
+-Hidrátate: Aunque estés en el agua, el cuerpo sigue perdiendo líquidos.
+
+-No nades solo/a: Especialmente si eres principiante o estás en mar abierto.
+
+-Usa equipo adecuado: Gorro, gafas, traje de baño cómodo, y tabla si lo necesitas.
+
+-Respira de forma controlada para evitar fatiga o hiperventilación.
+
+-Sé progresivo/a: Aumenta volumen e intensidad de manera gradual.
