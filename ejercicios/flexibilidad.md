@@ -17,3 +17,24 @@ Beneficios:
 -Mejora la circulación sanguínea.
 
 -Facilita la recuperación tras actividades físicas intensas.
+
+Instrucciones:
+1.Calentamiento previo (5-10 minutos): Realiza movimientos suaves o cardio ligero para aumentar la temperatura corporal.
+
+2.Estiramientos estáticos:
+
+-Mantén cada estiramiento entre 20 a 30 segundos.
+
+-Ejemplos: estiramiento de isquiotibiales, cuádriceps, gemelos, espalda baja, hombros y cuello.
+
+3.Estiramientos dinámicos:
+
+-Movimientos controlados y suaves, como balanceos de piernas, círculos de brazos o rotaciones de torso.
+
+-Realiza 10-15 repeticiones por movimiento.
+
+4.Frecuencia recomendada:
+
+-Al menos 3-4 veces por semana, o después de cada sesión de ejercicio.
+
+5.Respira profunda y regularmente mientras haces los estiramientos para maximizar la relajación.
