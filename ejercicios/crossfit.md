@@ -31,5 +31,18 @@ Instrucciones:
 
 4.Enfriamiento: Estiramientos estáticos y ejercicios de respiración para recuperación.
 
+Consejos:
+-Busca instrucción profesional: Para aprender la técnica correcta y evitar lesiones.
 
+-Respeta tus límites: No sacrifiques técnica por velocidad o peso.
+
+-Escucha a tu cuerpo: Descansa si sientes dolor o fatiga excesiva.
+
+-Calienta siempre antes y estira después.
+
+-Hidrátate durante el entrenamiento.
+
+-Usa ropa y calzado adecuado para permitir movilidad y soporte.
+
+-Progresión gradual: Incrementa peso e intensidad de forma progresiva.
 
