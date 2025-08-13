@@ -38,3 +38,16 @@ Instrucciones:
 -Al menos 3-4 veces por semana, o después de cada sesión de ejercicio.
 
 5.Respira profunda y regularmente mientras haces los estiramientos para maximizar la relajación.
+
+Consejos:
+-No rebotes durante los estiramientos para evitar lesiones musculares.
+
+-Evita estirar músculos fríos; siempre realiza un calentamiento previo.
+
+-Escucha a tu cuerpo: no estires hasta el dolor, solo hasta una sensación de tensión cómoda.
+
+-Sé constante; la flexibilidad mejora progresivamente con la práctica regular.
+
+-Personas con lesiones o condiciones médicas deben consultar a un especialista antes de comenzar.
+
+-Integra estiramientos en tu rutina diaria para obtener mejores resultados.
